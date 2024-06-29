@@ -1,7 +1,7 @@
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
-  <img src="https://te.legra.ph/Musty-06-29-4">
+  <img src="https://te.legra.ph/298478382829jpg">
 </p>
 
 <p align="center">
