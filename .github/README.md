@@ -1,6 +1,10 @@
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
+  <img src="https://te.legra.ph/Musty-06-29-4">
+</p>
+
+<p align="center">
 <b>KURULUM METHOD</b>
 </p>
 
